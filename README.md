@@ -12,3 +12,5 @@ Apaixonado por backend e sua complexidade, quero me tornar um dev de qualidade. 
 Sempre estou disponível para colobarar com projetos pessoais sem fins lucrativos.
 
 Contato: watanabe.thiago4@gmail.com
+
+Whatsapp: 67 991826421
